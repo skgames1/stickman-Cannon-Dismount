@@ -1,3 +1,5 @@
+ <img src="StickMan Canon Crash.png" />
+
 Privacy Policy
 
 Last updated: Thu Apr 6, 2023
