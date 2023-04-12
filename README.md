@@ -1,6 +1,6 @@
 Stickman Cannon Dismounting Privacy Policy
 
-Last updated: Thu Apr 6, 2023
+Last updated: Thu Apr 11, 2023
 
 This Privacy Policy governs the manner in which Stickman Cannon Dismounting collects, uses, maintains, and discloses information collected from users (each, a “User”) of the Stickman Cannon Dismounting mobile Game.
 
